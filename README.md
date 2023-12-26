@@ -1,1 +1,1 @@
-##                                                    Liebert                ⚡
+## Liebert ⚡
